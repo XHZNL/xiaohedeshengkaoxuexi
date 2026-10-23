@@ -1,0 +1,2 @@
+# xiaohedeshengkaoxuexi
+本仓库主要用来记述筱贺的省考学习历程，希望明年可以上岸
